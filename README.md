@@ -1,0 +1,2 @@
+# GenshinGang
+Auction Genshin Acc
